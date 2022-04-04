@@ -1,1 +1,1 @@
-supudo.net
+[supudo.net](https://supudo.net)
